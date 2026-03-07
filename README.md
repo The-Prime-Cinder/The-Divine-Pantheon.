@@ -1,2 +1,1 @@
-
-Also In the code click download raw file then double click the file to see our html website !
+Click on the Files name then At the top click download Raw file, Once downloaded Double click the file >:P
